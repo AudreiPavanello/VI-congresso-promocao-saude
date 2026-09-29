@@ -20,6 +20,6 @@ VICTORA, C. G. *et al.* Maternal and child undernutrition: consequences for adul
 
 ## Contato
 
-email: [audrei.pavanello\@docentes.unicesumar.edu.br](mailto:audrei.pavanello@docentes.unicesumar.edu.br)
+email: [audrei.pavanello@unicesumar.edu.br](mailto:audrei.pavanello@unicesumar.edu.br)
 
 linkedin: [linkedin.com/in/audrei-pavanello](https://www.linkedin.com/in/audrei-pavanello/)
